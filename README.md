@@ -2,4 +2,4 @@
 
 🚦I’m interested in Web developing, Playing Video Game & Traveling.
 
-🎓 I’m currently learning full-stack Web Developing
+🎓 I’m a  full-stack Web Developer.
